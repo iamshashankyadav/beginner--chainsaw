@@ -1,3 +1,3 @@
 # beginner--chainsaw
 <br>
-Got no when and why did i made this
+Got no idea when and why did i made this
